@@ -7,7 +7,7 @@
 Endure loneliness
 
 
-1.2 才能守得住繁华英文
+1.2 才能守得住繁华
 ---------------------
 
 live in prosperity
